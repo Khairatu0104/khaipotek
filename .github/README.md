@@ -1,14 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 No Counter 」──
+    ──「 °sᴇɴᴘᴀɪ ʀᴏʙᴏᴛ° 」──
 </h2>
 
 <p align="center">
-  <img src="https://te.legra.ph/file/4fe37be2903eb43ed297f.jpg">
+  <img src="https://te.legra.ph/file/e4cb1ba1867d3fecdf152.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/KhaiNoCounter_robot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/Khaisenpai_robot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
